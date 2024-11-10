@@ -1,4 +1,4 @@
-![Funny Program](https://github.com/user-attachments/assets/d3dca93b-418e-4686-ad1c-d919911919ee)
+![Funny Program](https://github.com/user-attachments/assets/1896929d-1475-471f-9acc-d492ba56dd59)
 
 > Modify software using humorous features and parody. Develop funny programs.
 #
